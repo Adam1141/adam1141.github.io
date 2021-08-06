@@ -1,1 +1,1 @@
-# adam1141.github.io
+Seucre Diary android app Privacy Policy and Terms of Service
